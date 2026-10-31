@@ -1,0 +1,159 @@
+
+# Old  
+Ya Allah Gusti, Ingkang Maha Agung.  
+Sujud lan andhap asor, ngagungaken Sinanjung.  
+Lelarataning dumadi, nyirna-aken adigung.  
+Mugi batining titah, tebih saking gumunggung.  
+Mugi tyasing titah, tumungkul ingkang Linuhung.  
+
+
+
+
+# Diksi  
+| Poros                       | Diksi                       | Fungsi                                        |  
+| --------------------------- | --------------------------- | --------------------------------------------- |  
+| **Kebesaran Allah**         | **Agung**                   | besar, luhur, mulia                           |  
+|                             | **Kaagungan**               | kebesaran/keagungan                           |  
+|                             | **Kagungan**                | memiliki/mempunyai                            |  
+|                             | **Linuhung**                | luhur, mulia                                  |  
+|                             | **Wibawa**                  | kewibawaan/otoritas yang membuat segan        |  
+|                             | **Prabawa**                 | pengaruh/kewibawaan/kekuatan                  |  
+| **Keunggulan mutlak**       | **Tan kena ...**            | membuka konstruksi “tak dapat...”             |  
+|                             | **Murbeng**                 | menguasai/memerintah sebagai unsur konstruksi |  
+|                             | **Panguwasa**               | penguasa/kekuasaan                            |  
+| **Kesombongan makhluk**     | **Adigung**                 | membanggakan/menonjolkan keluhuran diri       |  
+|                             | **Anggak**                  | gumedhe, umuk, angkuh                         |  
+|                             | **Adiguna**                 | membanggakan kepandaian diri                  |  
+|                             | **Adigang**                 | membanggakan kekuatan diri                    |  
+|                             | **Gumunggung**              | umuk, senang diagungkan                       |  
+|                             | **Umuk**                    | membanggakan diri                             |  
+|                             | **Sesumbar**                | menyombongkan diri melalui ucapan             |  
+| **Menundukkan kesombongan** | **Ngasorake**               | membuat rendah/mengalahkan                    |  
+|                             | **Ngrubuhake**              | meruntuhkan                                   |  
+|                             | **Nyirnaken**               | melenyapkan                                   |  
+|                             | **Sirna**                   | hilang/lenyap                                 |  
+| **Sikap hamba**             | **Andhap-asor**             | rendah hati                                   |  
+|                             | **Tumungkul**               | menunduk/tunduk                               |  
+|                             | **Sumungkem**               | menunduk/sujud hormat                         |  
+|                             | **Tebih saking gumunggung** | doa agar dijauhkan dari kesombongan           |  
+
+
+
+
+
+
+# New  
+Ya Allah Gusti, Ingkang Maha Wibawa.  
+Kagungan prabawa luhur, tan kena den-sangga.  
+Ngasorake rasa kumerasa, ngrubuhake sekabehing angkara.  
+Manunggal ing kamulyan, puncaking kemukten perkasa.  
+Mugi sekabehing janma, sumungkem ing panguwasa.  
+
+Ya Allah Gusti, mutlak kagungan agung.  
+Ngasorake sakehing janma, ingkang watak gumunggung.  
+Ngrubuhake panguwasa angkara, kasungsep lan kasandhung.  
+Sekabehing daya jemawa, sirna dados suwung.  
+Mugi sagunging titah, sumungkem ngarsa Agung.  
+
+Ya Allah Gusti, mutlak kagungan agung.  
+Ngasorake sakehing janma, ingkang ngaku wong agung.  
+Ngrubuhake sakehing angkara, nyirnaken rasa adigung.  
+Sekabehing daya jemawa, sirna dados suwung.  
+Mugi sagunging titah, tebih saking gumunggung.  
+
+Ya Allah Gusti, mutlak kagungan agung.  
+Ngasorake sakehing janma, ingkang sesumbar umung.  
+Ngrubuhake sakehing angkara, nyirnaken adigung.  
+Sekabehing daya palsu, sirna dados suwung.  
+Mugi sagunging kawula, tebih saking gumunggung.  
+
+# Pre Bait  
+Ya Allah Gusti, mutlak kagungan agung.  
+Ngasoraken sakehing janma, ingkang kumalungkung.  
+Ngrubuhaken angkara, nyirnaaken adigung.  
+Sekabehing daya anggak, sirna dados suwung.  
+Mugi sagunging kawula, tebih saking gumunggung.  
+
+
+Ya Allah Gusti, mutlak kagungan agung.  
+Ngasoraken sakehing janma, ingkang kumalungkung.  
+Ngrubuhaken adigang, nyirnaaken adigung.  
+sesumbar anggak adiguna, sirna dados suwung.  
+Mugi sagunging kawula, tebih saking gumunggung.  
+
+---  
+
+minesnya bahasa Indonesia dan Jawa wkwk gak bisa merangkul nama-Nya dengan lebih indah.  
+
+---  
+
+# Final ?  
+## Kanonik  
+Ya Allah Gusti, Mutlak Kagungan Agung.  
+Ngasoraken sakehing jalmi, ingkang kumalungkung.  
+Ngrubuhaken adigang, nyirnakaken adigung.  
+Sesumbar anggak adiguna, sirna dados suwung.  
+Mugi sagunging kawula, tebih saking gumunggung.  
+
+
+## Fonetis  
+Ya Allah Gusti, Mutlak Kagungan Agung.  
+Ngasoraken sakehing jalmi, ingkang kumalungkung.  
+Ngrubuhaken adigang, nyirnokaken adigung.  
+Sesumbar anggak adiguno, sirno dados suwung.  
+Mugi sagunging kawulo, tebih saking gumunggung.  
+
+
+## Kanonik Lyrics  
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Mutlak Kagungan Agung  
+Keagungan mutlak adalah milik-Mu  
+
+Ngasoraken sakehing jalmi  
+(yang) Menundukkan semua manusia  
+
+Ingkang kumalungkung  
+Yang tinggi hati (sombong)  
+
+Ngrubuhaken adigang  
+(yang) Merubuhkan kesombongan kekuatan  
+
+Nyirnakaken adigung  
+(melenyapkan) kesombongan kedudukan  
+
+Sesumbar anggak adiguna  
+Membual, angkuh, dan menyombongkan kepandaian  
+
+Sirna dados suwung  
+Lenyap menjadi kehampaan  
+
+Mugi sagunging kawula  
+Semoga seluruh hamba-Mu  
+
+Tebih saking gumunggung  
+Dijauhkan dari kesombongan  
+
+
+# WIKI  
+
+Kalau ini kita perlakukan sebagai bait Kanonik, saya suka arah besarnya. Tapi ada satu hal yang perlu diperhatikan: gatra pertama Ingkang mutlak kagungan Agung terdengar lebih seperti konstruksi yang ingin menegaskan “Yang mutlak memiliki keagungan”, sedangkan maksud yang sebelumnya Komandan tetapkan adalah keagungan mutlak adalah milik Allah.  
+
+Kalau maksudnya tetap:  
+
+Mutlak Kagungan Agung  
+Keagungan mutlak adalah milik-Mu  
+
+maka versi tanpa koma lebih kuat dan lebih ambigu secara sastra.  
+
+Jadi saya akan mempertahankan:  
+
+Ya Allah Gusti, Mutlak Kagungan Agung.  
+
+Bukan:  
+
+❌ Ya Allah Gusti, Ingkang mutlak kagungan Agung.  
+
+Karena penambahan Ingkang mengubah konstruksi dan berpotensi membuat mutlak menerangkan subjek Ingkang, bukan kagungan Agung.  
+

@@ -1,0 +1,123 @@
+# OLD  
+
+Ya Allah Gusti, Ingkang Ngasoraken.  
+Mugi Kawulo tansah, andhap-asor mring pangeran. 
+ma'rifatun-nafsi `(مَعْرِفَةُ النَّفْسِ)`, eling kasunyatan. 
+Ing pucuke lintang, tinemu owahing kahanan.  
+Ing pucaking kamulyan, iman tan mesthi tahan.  
+
+
+# NEW  
+Ya Allah Gusti, Ingkang Angasorake angkara.  
+Angandhapake drajat kang jumawa, angendhak gumunggunging rasa.  
+Angruntuhake watak kumaluhur, amungkurake kasombongan ingkang nyata.  
+Ambalang keangkuhan ing antariksa, aninggalake pakarti daksiya.  
+Mugi sagunging manungsa, tebih saking watak umbak lan murka.  
+
+
+# NEW -AKEN  
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajating kang jumawa, Paduka asoraken.  
+Ingkang mumbul manginggil, Paduka runtuhaken.  
+Sakehing watak umbag, Paduka tundhukaken.  
+Mugi sagunging manungsa, tansah ka-elingaken.  
+
+# Pre FInal  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajating ingkang jumawa, Paduka asoraken.  
+Ingkang mumbul manginggil, Paduka runtuhaken.  
+Sakehing watak umbag, Paduka tundhukaken.  
+Mugi sedaya kawula, tansah ka-elingaken.  
+
+Ya Allah Gusti, Ingkang Maha Ngasoraken.  
+Drajatipun ingkang jumawa, Gusti asoraken.  
+Ingkang mumbul manginggil, Gusti dhawahaken.  
+Sakathahing watak umbag, Gusti tundhukaken.  
+Mugi sedoyo kawulo, tansah kaelingaken.  
+
+## rearange  
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajatipun ingkang jumawa, kanthi adil kaasoraken.  
+Ingkang mumbul manginggil, ing wusana rinuntuhaken.  
+Sakehing watak umbag, datan suwe katundhukaken.  
+Mugi sagunging manungsa, sajroning gesang kaelingaken.  
+
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajating ingkang jumawa, Paduka asoraken.  
+Sakathahing watak umbag, Paduka tundhukaken.  
+Ingkang mumbul manginggil, Paduka dhawahaken.  
+Mugi sedaya kawula, tansah kaelingaken.  
+
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajatipun ingkang jumawa, kanthi adil kaasoraken.  
+Ingkang mumbul manginggil, ing wusana rinuntuhaken.  
+Sakehing watak umbag, datan suwe katundhukaken.  
+Mugi sagunging manungsa, sajroning gesang kaelingaken.  
+
+
+
+
+# Final  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Angandhapaken.  
+Drajating ingkang jumawa, Paduka asoraken.  
+Ingkang mumbul manginggil, Paduka dhawahaken.  
+Sakathahing watak umbag, Paduka tundhukaken.  
+Mugi sedaya kawula, tansah kaelingaken.  
+
+## Fonetis | Kanonik  
+Ya Allah Gusti, Ingkang Moho Angandhapaken.  
+Drajating ingkang jumowo, Paduko asoraken.  
+Ingkang mumbul manginggil, Paduko dhawahaken.  
+Sakathahing watak umbag, Paduko tundhukaken.  
+Mugi sedoyo kawulo, tansah kaelingaken.  
+
+## Wejangan  
+Dhuh para kawula, Pangeran saged ngasorake.  
+Pramila sami eling o, yen wonten Kaluhurane.  
+Mulat Sarira, amrih eling kasunyatane.  
+Saben owahing kahanan, nglairaken Hakikate.  
+Mugi sagunging gesang, tansah eling Pangerane.   
+
+Dhuh para kawula, Pangeran saged ngasorake.  
+Pramila sami eling o, bilih wonten Kaluhurane.  
+Mulat Sarira, amrih sumrup kasunyatane.  
+Saben owahing kahanan, nglairaken Hakikate.  
+Mugi sagunging dumadi, tansah eling Pangerane. 
+
+## Kanonik Lirik  
+
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Angandhapaken  
+Yang Maha Merendahkan  
+(Yang Maha Merendahkan derajat makhluk-Nya)  
+
+Drajating ingkang jumawa  
+Derajat orang yang angkuh  
+
+Paduka asoraken  
+Engkau rendahkan  
+
+Ingkang mumbul manginggil  
+Yang menjulang tinggi  
+(orang yang meninggi-ninggikan dirinya)  
+
+Paduka dhawahaken  
+Engkau jatuhkan  
+
+Sakathahing watak umbag  
+Segala sifat kesombongan  
+
+Paduka tundhukaken  
+Engkau tundukkan  
+
+Mugi sedaya kawula  
+Semoga seluruh hamba  
+
+Tansah kaelingaken  
+Senantiasa diingatkan  

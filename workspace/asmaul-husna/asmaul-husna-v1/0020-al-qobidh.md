@@ -1,0 +1,105 @@
+# OLD  
+Ya Allah Gusti, Ingkang Angringkes Berkah.  
+Mugi sagunging titah, tumemen ing ibadah.  
+Berkah kang kinempit, sanes sirnaning rahmah.  
+Sajroning kasempitan, sinimpen wijining hikmah.  
+Mugi sagunging titah, tetep pasrah sumarah.  
+
+# NEW  
+Ya Allah Gusti, Ingkang Maha Amatesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, kanthi wicaksaning paring-Iri.  
+Anggenggem nyawa lan yuswa, yen wus tinimbang sejati.  
+Mugi samudaya janma, pasrah ing wewenang Ilahi.  
+
+Ya Allah Gusti, Ingkang Maha Amatesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa kang suci.  
+Anggenggem nyawa lan yuswa, yen wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah ing wewenang Ilahi.  
+
+
+# Pre FInal  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa ingkang suci.  
+Anggenggem nyawa lan yuswa, yen wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah ing wisesa Ilahi.  
+
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa ingkang suci.  
+Anggenggem nyawa lan yuswa, ngetrapake watesing wanci.  
+Mugi samudaya janma, pasrah ing wisesa Ilahi.  
+
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa ingkang suci.  
+Anggenggem nyawa yuswa, miwah isining bumi.  
+Mugi samudaya janma, pasrah ing wisesa Ilahi.  
+
+
+# Final  
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Gusti.  
+Angingset tuking boga, adhedhasar karsa ingkang suci.  
+Anggenggem nyawa lan yuswa, wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah ing wisesa Ilahi.  
+
+## Kanonik Alternate Variant  
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa ingkang suci.  
+Anggenggem nyawa lan yuswa, wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah ing wisesa Ilahi.  
+
+## Elisi  
+### Kanonik  
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Gusti.  
+Angingset tuking boga, adhedhasar karsa suci.  
+Anggenggem nyawa yuswa, wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah wisesa Ilahi.  
+
+### Variant  
+Ya Allah Gusti, Ingkang Maha Matesi.  
+Angringkes pangupajiwa, amrih eling ing Widhi.  
+Angingset tuking boga, adhedhasar karsa suci.  
+Anggenggem nyawa yuswa, wus tinentu ing wanci.  
+Mugi samudaya janma, pasrah wisesa Ilahi.  
+
+## Kanonik Lirik | Variant  
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Matesi  
+Yang Maha Membatasi  
+
+Angringkes pangupajiwa  
+(yang) Menyempitkan mata pencaharian (penghidupan)  
+(membatasi kebutuhan hidup)  
+
+Amrih eling ing Widhi  
+Agar ingat kepada Tuhan  
+
+Angingset tuking boga  
+(yang) Membatasi sumber pangan  
+
+Adhedhasar karsa ingkang suci  
+Berdasarkan kehendak yang suci  
+
+Anggenggem nyawa lan yuswa  
+(yang) Menggenggam nyawa dan usia  
+
+Wus tinentu ing wanci  
+Telah ditentukan waktunya  
+(semuanya berada dalam ketentuan waktu-Nya)  
+
+Mugi samudaya janma  
+Semoga seluruh manusia  
+
+Pasrah ing wisesa Ilahi  
+Berserah kepada kekuasaan Ilahi  

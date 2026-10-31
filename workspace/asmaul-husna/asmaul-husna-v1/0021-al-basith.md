@@ -1,0 +1,96 @@
+# OLD  
+Ya Allah Gusti, Ingkang Ambabar Berkah.  
+Mugi sagunging titah, tumemen ing ibadah.  
+Berkah kang kababar, minangka jembaring rahmah.  
+Sajroning pepadhang, tinemu witing hikmah.  
+Mugi sagunging titah, tansah syukur sumringah.  
+
+
+# NEW  
+
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber sih-rahmat, berkah padha sumebar.  
+Ambalabar rezeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah luminjar.  
+Mugi sakabehing titah, tansah syukur datan lumanggar.  
+
+## Pre-Bait  
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber sih-rahmat, berkah padha sumebar.  
+Ambalabar rezeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah lumanjar.  
+Mugi sakabehing titah, tansah syukur datan lumanggar.  
+
+# Pre Final ?  
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber asih rahmat, berkah padha sumebar.  
+Ambalabar rejeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah tumangkar.  
+Mugi sagunging titah, tansah syukur datan lumanggar.  
+
+
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber asih rahmat, berkah padha sumebar.  
+Ambalabar rejeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah sumebyar.  
+Mugi sagunging titah, tansah syukur datan lumanggar.  
+
+
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber asih rahmat, berkah sami sumebar.  
+Ambalabar rejeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bingah tumangkar.  
+Mugi sedaya kawula, tansah syukur datan lumanggar.  
+
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber asih rahmat, berkah tansah sumebar.  
+Ambalabar rejeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah tumangkar.  
+Mugi sagunging kawula, tansah syukur datan lumanggar.  
+
+
+# Final  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Angelar.  
+Ambeber asih rahmat, berkah tansah sumebar.  
+Ambalabar ing rejeki, paring sarwa sumekar.  
+Anglipur sungkawa nala, nuwuhake bungah tumangkar.  
+Mugi sagunging kawula, saged syukur datan lumanggar.  
+
+
+## Kanonik Lirik  
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Angelar  
+Yang Maha Membentangkan  
+
+Ambeber asih rahmat  
+(yang) Membentangkan kasih dan rahmat  
+
+Berkah tansah sumebar  
+Berkah senantiasa tersebar  
+
+Ambalabar ing rejeki  
+(yang) Membentangkan rezeki  
+
+Paring sarwa sumekar  
+Memberikan segala yang mekar berkembang  
+(anugerah yang serba berkembang dengan indah)  
+
+Anglipur sungkawa nala  
+(yang) Menghibur hati yang berduka  
+
+Nuwuhake bungah tumangkar  
+(yang) Menumbuhkan kebahagiaan berlipat ganda  
+(kebahagiaan yang terus bertambah banyak)  
+
+Mugi sagunging kawula  
+Semoga seluruh hamba  
+
+Saged syukur datan lumanggar  
+Mampu bersyukur tanpa melanggar  
+(bersyukur tanpa melampaui batas)  
+

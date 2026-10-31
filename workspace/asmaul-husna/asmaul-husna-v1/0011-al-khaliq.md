@@ -1,0 +1,84 @@
+# OLD  
+Ya Allah Gusti, Ingkang Akarya Jagad.  
+Gumelar sampurna, kebak hikmat lan rahmat.  
+Tinamtu pinasti, tan wonten kang nyulayani.  
+Kawula amung ngimani, maha-karyaning Gusti.  
+Mugi Gusti nganugrahi, gesang ingkang migunani.  
+
+# G1  
+Ya Allah Gusti, Ingkang Akarya Jagad.  
+Ya Allah Gusti, Maha Nitahaken dumadi.  
+
+# Ya Allah Gusti, Maha Nitahaken dumadi. 
+
+Ya Allah Gusti, Ingkang Nitahaken dumadi.  
+Saka nir-wujud, rinacik dadi isi.  
+Nggupita jagad, tatanan tan kena diowahi.  
+Sakèhing wujud, sumungkem ing Pangeran Sejati.  
+Mugi sagunging kawula, ngabekti ing ngarsa Suci.  
+
+## Pre Bait  
+Ya Allah Gusti, Ingkang Nitahaken dumadi.  
+Nggupita jagad raya, tan kena dipunowahi.  
+Saking nir-wujud, rinacik amancawarni.  
+Kawula amung nyekseni, Maha-Karyaning Gusti.  
+Mugi gesang migunani, ngabekti ing ngarsa Suci.  
+
+
+# Final ?  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Nitah Dumadi.  
+Nggupita jagad raya, tan kena dipunowahi.  
+Saking nir-wujud, rinacik amancawarni.  
+Kawula amung nyekseni, Maha-Karyaning Gusti.  
+Mugi gesang migunani, ngabekti ing ngarsa Suci.  
+
+## Alternate Varian  
+Ya Allah Gusti, Ingkang Nitahaken Dumadi.  
+Nggupita jagad raya, tan kena dipunowahi.  
+Saking nir-wujud, rinacik amancawarni.  
+Kawula amung nyekseni, Maha-Karyaning Gusti.  
+Mugi gesang migunani, ngabekti ing ngarsa Suci.  
+
+## Fonetis | Kanonik  
+Ya Allah Gusti, Ingkang Moho Nitah Dumadi.  
+Nggupito jagad royo, tan keno dipunowahi.  
+Saking nir-wujud, rinacik amancowerni.  
+Kawulo amung nyekseni, Moho-Karyoning Gusti.  
+Mugi gesang migunani, ngabekti ing ngarso Suci.  
+
+
+## Kanonik Lyrics  
+
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Nitah Dumadi  
+Yang Maha Menctiptakan Makhluk  
+(yang Maha Menciptakan segala yang ada)  
+
+Nggupita jagad raya  
+Merancang jagat raya  
+
+Tan kena dipunowahi  
+Tak dapat diubah  
+(tidak dapat diubah atau diganggu-gugat oleh manusia)  
+
+Saking nir-wujud  
+Dari tanpa wujud  
+
+Rinacik amancawarni 
+Dirangkai menjadi berwarna-warni (beraneka rupa) 
+
+Kawula amung nyekseni  
+Hamba hanya menyaksikan  
+
+Maha-Karyaning Gusti  
+Mahakarya Tuhan  
+
+Mugi gesang migunani  
+Semoga hidup menjadi bermanfaat  
+
+Ngabekti ing ngarsa Suci  
+Berbakti di hadapan Yang Suci  

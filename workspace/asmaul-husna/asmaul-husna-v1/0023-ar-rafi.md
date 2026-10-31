@@ -1,0 +1,134 @@
+# OLD  
+Ya Allah Gusti, Ingkang Ngluhuraken.  
+Mugi kawula tansah, pinaringan kamulyan.  
+Katuntun ing margi, tumuju ing kasampurna-an.  
+Amrih mantep ing rasa, ambabar ing ka-agungan.  
+Mugi sagunging gesang, pinaringan katentreman.  
+
+## Wejangan  
+Dhuh para kawula, Pangeran saged ngluhurake.  
+Pramila sami ngupayaa, amrih luhur lakone.  
+Manah andhap asor, wiwitaning derajate.  
+Sakabehing lelampahan, muwus wewadi Karsane.  
+Mugi lampahing gesang, kasinungan Nugrahane.  
+
+# NEW  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Drajating kang tawadhu', Paduka luhuraken.  
+Ingkang andhap-asor, Paduka inggilaken.  
+Titihe kang katindhes, Paduka junjungaken.  
+Mugi sagunging manungsa, Paduka unggahaken.  
+
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu lan iman, Paduka inggilaken.  
+Drajating kang tawadhu', Paduka luhuraken.  
+Titah kang katindhes, Paduka junjungaken.  
+Mugi sagunging manungsa, tansah ka-inggilaken.  
+
+
+## Pre Bait  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu lan iman, Paduka inggilaken.  
+Drajating kang andhap-asor, Paduka luhuraken.  
+Titah kang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah ka-inggilaken.  
+
+
+# Pre FInal  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu lan iman, Paduka inggilaken.  
+Drajating ingkang andhap-asor, Paduka luhuraken.  
+Titah ingkang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah kainggilaken.  
+
+## Alternate Varian  
+Ya Allah Gusti, Ingkang Maha Ngluhuraken.  
+Drajating kang prasaja, mring mulya kaunggahaken.  
+Ingkang andhap asor, ing inggil kaluhuraken.  
+Sakehing kasucian jiwa, mring inggil kaunggulaken.  
+Mugi sagunging dumadi, mrih drajat kaluhuraken.  
+
+
+## Elisi  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu iman, Paduka inggilaken.  
+Drajating kang andhap-asor, Paduka luhuraken.  
+Titah ingkang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah kainggilaken.  
+
+
+
+
+
+
+
+# Final  
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu lan iman, Paduka inggilaken.  
+Drajating ingkang andhap-asor, Paduka luhuraken.  
+Titah ingkang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah kainggilaken.  
+
+## Elisi  
+Ya Allah Gusti, Ingkang Maha Anginggilaken.  
+Ingkang marsudi ilmu iman, Paduka inggilaken.  
+Drajating kang andhap-asor, Paduka luhuraken.  
+Titah ingkang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah kainggilaken.  
+
+## Alternate Varian  
+Ya Allah Gusti, Ingkang Maha Ngluhuraken.  
+Drajating kang prasaja, mring mulya kaunggahaken.  
+Ingkang andhap asor, ing inggil kaluhuraken.  
+Sakehing kasucian jiwa, mring inggil kaunggulaken.  
+Mugi sagunging dumadi, mrih drajat kaluhuraken.  
+
+## Fonetis | Elisi  
+Ya Allah Gusti, Ingkang Moho Anginggilaken.  
+Ingkang marsudi ilmu iman, Paduka inggilaken.  
+Drajating kang andhap-asor, Paduka luhuraken.  
+Titah ingkang katindhes, Paduka junjungaken.  
+Mugi sedaya kawula, tansah kainggilaken.  
+
+
+## Wejangan  
+Dhuh para kawula, Pangeran saged ngluhurake.  
+Pramila sami ngupayaa, amrih luhur lakone.  
+Manah andhap asor, wiwitaning derajate.  
+Sakabehing lelampahan, muwus wewadi Karsane.  
+Mugi lampahing gesang, kasinungan Nugrahane.  
+
+## Kanonik Lirik  
+
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Anginggilaken  
+Yang Maha Meninggikan  
+
+Ingkang marsudi ilmu lan iman  
+(orang) Yang bersungguh-sungguh dalam ilmu dan iman  
+
+Paduka inggilaken  
+Engkau tinggikan  
+
+Drajating ingkang andhap-asor  
+Derajat (orang) yang rendah hati  
+
+Paduka luhuraken  
+Engkau muliakan  
+
+Titah ingkang katindhes  
+Makhluk yang tertindas  
+
+Paduka junjungaken  
+Engkau junjung  
+
+Mugi sedaya kawula  
+Semoga seluruh hamba  
+
+Tansah kainggilaken  
+Senantiasa ditinggikan  

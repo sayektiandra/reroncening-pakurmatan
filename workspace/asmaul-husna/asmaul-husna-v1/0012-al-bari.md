@@ -1,0 +1,104 @@
+# OLD  
+
+Ya Allah Gusti, Ingkang Amancawarni.  
+Sagunging Dumadi, beda wujud sesami.  
+Tinata ingkang titi, rinakit Karsa Ilahi.  
+Kawulo amung nyekseni, nrimo tanpo upami.  
+Mugi paring sih-suci, wening ingkang sayekti.  
+
+---  
+
+Ya Allah Gusti, Ingkang Ambedakaken.  
+Saben titah gumelar, beda wujud pepadan.  
+Tinatan tanpa padha, rinakit Karsa Niatan.  
+Kawula amung nyekseni, bedaning wujud ngayunan.  
+Mugi paring kanugrahan, tumrap gesang karaharjan.  
+
+
+# G1  
+
+
+
+# new  
+Ya Allah Gusti, Maha Ambabar Karya.  
+Ambedhar wujud, rinacik tanpa cela.  
+Ngetrapaken tatanan, linaras tan ana beda.  
+Sakèhing titah, sumungkem ing panguwasa.  
+Mugi sagunging kawula, rineksa saking panggodha.  
+
+Ya Allah Gusti, Maha Ambabar Karya.  
+Nggelar kartika lan bawana, bineda wujud lan rupa.  
+Ngetrapaken tatanan, rinacik tanpa cela.  
+Sekabehing isi jagad, sumungkem ing panguwasa.  
+Mugi sagunging kawula, tansah eling lan waspada.  
+
+
+# Pre Bait  
+Ya Allah Gusti, Ingkang Ambabar Karya.  
+Ingkang Ambedhar wujud, rinacik ingkang sampurna.  
+Ngetrapaken tatanan, linaras tan ana beda.  
+Sakèhing titah, sumungkem ing Panguwasa.  
+Mugi sagunging kawula, rineksa saking panggodha.  
+
+
+Ya Allah Gusti, Maha Ambabar Karya.  
+Nggelar kartika lan bawana, bineda wujud lan rupa.  
+Ngetrapaken tatanan, rinacik tanpa cela.  
+Sekabehing isi jagad, sumungkem ing panguwasa.  
+Mugi sagunging kawula, tansah eling lan waspada.  
+
+
+# Pre Final  
+
+Ya Allah Gusti, Ingkang Ambabar Karya.  
+Nggelar kartika bawana, bineda wujud rupa.  
+Ngetrapaken tatanan, rinacik tanpa cela.  
+Sekabehing isi jagad, sumungkem ing Panguwasa.  
+Mugi sagunging kawula, tansah eling waspada.  
+
+# FInal  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Ambabar Karya.  
+Nggelar kartika bawana, wujud rupa bineda.  
+Ngetrapaken tatanan, rinacik tanpa cela.  
+Sakabehing isi jagad, sumungkem ing Paduka.  
+Mugi sagunging kawula, tansah eling waspada.  
+
+## Fonetis | Elisi  
+Ya Allah Gusti, Maha Ambabar Karyo.  
+Nggelar kartiko bawono, wujud rupo binedo.  
+Ngetrapaken tatanan, rinacik tanpa celo.  
+Sakabehing isi jagad, sumungkem ing Paduko.  
+Mugi sagunging kawulo, tansah eling waspodo.  
+
+## Kanonik Lirik  
+Ya Allah Gusti  
+Ya Allah (Ya) Tuhan  
+
+Ingkang Maha Ambabar Karya  
+Yang Maha Membentangkan karya  
+
+Nggelar kartika bawana  
+(yang) Menggelar bintang-bintang semesta  
+
+Wujud rupa bineda  
+Dalam rupa yang berbeda-beda  
+
+Ngetrapaken tatanan  
+(yang) Menerapkan tatanan  
+
+Rinacik tanpa cela  
+(dan) Dirangkai tanpa cela  
+
+Sakabehing isi jagad  
+Segala isi jagat  
+
+Sumungkem ing Paduka  
+Bersujud kepada-Mu  
+
+Mugi sagunging kawula  
+Semoga seluruh hamba-Mu  
+
+Tansah eling waspada  
+Senantiasa ingat dan waspada  
