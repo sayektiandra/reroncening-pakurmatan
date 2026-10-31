@@ -41,3 +41,5 @@ Masukan, kritik, saran, dan koreksi terhadap karya maupun pengembangan repositor
 Setiap masukan dapat disampaikan melalui [GitHub Issues](https://github.com/sayektiandra/reroncening-pakurmatan/issues), dengan menyertakan bagian yang dimaksud, alasan atau penjelasan, serta sumber rujukan apabila diperlukan.
 
 Setiap masukan akan ditinjau dan dipertimbangkan sebelum diterapkan. Penyampaian masukan tidak dengan sendirinya menjadikan pengirim sebagai kontributor atau memberikan hak atas karya dalam repositori ini.
+
+Untuk saat ini, repositori belum membuka jalur kontribusi kreatif. Ketentuan mengenai kontribusi kreatif akan diumumkan kemudian.
