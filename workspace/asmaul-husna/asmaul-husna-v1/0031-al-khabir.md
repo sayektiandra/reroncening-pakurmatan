@@ -1,0 +1,185 @@
+Asma'ul Husna nomor 31 adalah Al-Khabir (الْخَبِيرُ).  
+Dalam bahasa Indonesia, Al-Khabir diartikan sebagai Maha Waspada, Maha Mengetahui Rahasia, atau Maha Mengenal secara Detail.  
+Mari kita bedah maknanya dengan bahasa santai agar langsung dipahami, Komandan:  
+
+* Tahu Rahasia yang Paling Tersembunyi: Jika Al-'Alim (Maha Mengetahui) artinya Allah tahu segala hal secara umum, maka Al-Khabir artinya Allah tahu sampai ke tingkat akar, detail, dan latar belakang yang paling rahasia. Tidak ada satu pun kepalsuan atau sandiwara manusia yang bisa membohongi-Nya.  
+* Mendeteksi Niat Batin: Allah tahu persis alasan di balik setiap tindakanmu. Misalnya, ketika kamu menolong orang lain, Al-Khabir tahu apakah kamu tulus karena ingin membantu atau sekadar ingin dipuji oleh orang lain.  
+* Dalam Sastra Jawa: Sifat ini sangat pas dengan istilah "Gusti Ingkang Wikan Warananing Rasa" atau "Ingkang Nrawang Sakabehing Wadining Ati", yaitu Zat yang mampu meneropong dan mengetahui semua rahasia serta lipatan batin manusia yang paling dalam tanpa ada yang meleset sedikit pun.  
+
+Hubungannya dengan nomor 30 (Al-Lathif):  
+Dua nama ini adalah pasangan kembar yang sering sekali muncul bersamaan di dalam Al-Qur'an (Lathifun Khabir), Komandan. Allah Maha Lembut (Al-Lathif) sekaligus Maha Mengetahui Rahasia (Al-Khabir). Hal ini mengajarkan kita bahwa karena Allah tahu persis setiap detail masalah kita yang paling rumit (Al-Khabir), maka cara Dia memberikan solusi pun selalu dilakukan dengan cara yang sangat halus dan penuh kasih sayang (Al-Lathif).  
+
+
+# Draft  
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, kasimpen sajroning sukma.  
+Tan ana kang ndelik, luput saking pirsa.  
+Saben niyat lan lampah, Paduka sampun ngertos sadaya.  
+Mugi niyat kawula, tansah leres lan prasaja.  
+
+# Pre Bait  
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, kang kasimpen ing sajroning sukma.  
+...  
+...  
+Mugi niyat kawula, tansah leres lan prasaja.  
+
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, kasimpen sajroning sukma.  
+Tan ana kang ndelik, tan luput saking pirsa.  
+Saben niyat lan lampah, Paduka sampun ngertos sadaya.  
+Mugi sedoyo kawula, tansah leres lan prasaja. `prasaja sederhana, bersahaja, apa adanya, tidak dibuat-buat.`  
+
+
+# Pre Beta  
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, kasimpen sajroning sukma.  
+Tan ana kang ndelik, tan luput saking pirsa.  
+Saben niyat lan lampah, Paduka ngertos sadaya.  
+Mugi kawulo sedoyo, tansah leres prasaja.  
+
+# Pre-Final ?  
+
+## Kanonik  
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, kasimpen sajroning sukma.  
+Tan ana kang ndelik, tan luput saking pirsa.  
+Saben niyat lan lampah, Paduka ngertos sadaya.  
+Mugi kawulo titah, tansah leres prasaja.  
+
+## Fonetis  
+Ya Allah Gusti, Ingkang Moho Waskitho.  
+Nyumurupi rohso, kasimpen sajroning sukmo.  
+Tan ono kang ndelik, tan luput saking pirso.  
+Saben niyat lan lampah, Paduko ngertos sadoyo.  
+Mugi kawulo titah, tansah leres prasojo.  
+
+## Upgrade ?  
+
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, sinimpen sajroning sukma.  
+Tan ana kang sinamun, tan luput saking pirsa.  
+Saben niyat lan lampah, Paduka ngertos sadaya.  
+Mugi sagunging titah, tansah leres prasaja.  
+
+Ya Allah Gusti, Ingkang Maha Waskitha.  
+Nyumurupi rahsa, sinimpen sajroning sukma.  
+Tan ana kang sinamun, tan luput saking pirsa.  
+Saben niyat lan lampah, Paduka ngertos sadaya.  
+Mugi sagunging titah, tansah leres prasaja.  
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana sinamun, boten luput pirsa.
+Saben niyat lampah, Paduka ngertos sadaya.
+Mugi weninging ati, tebih saking samudana.
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana ingkang sinamun, boten luput saking pirsa.
+Saben niyat lan lampah, Paduka ngertos sedaya.
+Tinebihna samudana, dumatheng para kawula
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana ingkang sinamun, boten luput saking Paduka.
+Saben niyat lan lampah, Pangeran ngertos sedaya.
+Tinebihna samudana, dhumateng para kawula
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana ingkang sinamun, Paduka boten luput pirsa
+Saben niyat lan lampah, Pangeran ngertos sedaya.
+Tinebihna samudana, dhumateng para kawula
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana ingkang sinamun, boten luput saking pirsa.
+Saben niyat lan lampah, Paduka ngertos sedaya.
+Mugi kawula prastawa, enggal tansah yatna
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, sinimpen sajroning sukma.
+Tan ana ingkang sinamun, tansah tliti pirsa.
+Saben niyat lan lampah, Paduka ngertos sedaya.
+Mugi kawula prastawa, titen enggal prayitna
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Nyumurupi sagunging rahsa, wikan sajroning sukma.
+Tan ana ingkang sinamun, Pangeran tliti pirsa.
+Niyat lampahing sedaya, Paduka ngertos saniskāra.
+Mugi kawula prastawa, titen enggal prayitna
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna sajroning sukma.
+Nora ana guhya, Pangeran tliti pirsa.
+Niyat lampahing sedaya, Paduka wikan saniskāra.
+Mugi kawula prastawa, pramata sarta prayitna.
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna adyapin sukma.
+Nora ana guhya, tliti pirsa saniskāra.
+Niyat lampahing sedaya, Paduka wikan sahamūla.
+Mugi kawula prastawa, pramata sarta prayitna.
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna adyapin sukma.
+Nora ana guhya, tliti pirsa saniskāra.
+Niyat lampahing sedaya, Paduka wikan sahamūla.
+Mugi saliring kawula, pramata sarta prayitna.
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna adyapin sukma.
+Nora ana guhya, tliti pirsa saniskāra.
+Niyat lampahing sedaya, Paduka wikan sahamūla.
+Mugi saliring kawula, saged pramata prayitna.
+
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna adyapin sukma.
+Nora ana guhya, tliti pirsa saniskāra.
+Niyat lampahing sedaya, Paduka wikan sahamūla.
+Mugi saliring kawula, tansah pramata prayitna.
+
+
+# Final
+## Kanonik
+Ya Allah Gusti, Ingkang Maha Waskitha.
+Tatwawit sagunging rahsa, sāwadhāna adyapin sūkṣma.
+Nora ana guhya, tliti pirsa saniskara.
+Niyat lampahing sedaya, Paduka wikan sahamūla.
+Mugi saliring kawula, tansah pramata prayitna.
+
+## Lyric
+Ya Allah Gusti
+Ya Allah (Ya) Tuhan
+
+Ingkang Maha Waskitha
+Yang Maha Waskita
+(Maha Waspada, Maha Teliti, Maha Mengetahui secara mendalam)
+
+Tatwawit sagunging rahsa
+Mengetahui segala hal yang tersembunyi
+(mengetahui hal yang sebenarnya, semua rahasia)
+
+Sawadhana adyapin suksma
+Memperhatikan bahkan sampai (yang) gaib
+(mengetahui dan memperhatikan, bahkan sampai hal yang gaib)
+
+Nora ana guhya
+Tiada sesuatu (yang) tersembunyi
+(tiada sesuatu yang tersembunyi, tertutupi, terahasiakan, gaib)
+
+Tliti pirsa saniskara
+Teliti melihat semuanya
+
+Niyat lampahing sedaya
+Niat dan langkah semua
+
+Paduka wikan sahamula
+Engkau mengetahui sampai ke akar-akarnya
+
+Mugi saliring kawula
+Semoga seluruh hamba
+
+Tansah pramata prayitna
+Senantiasa waspada (dan) berhati-hati

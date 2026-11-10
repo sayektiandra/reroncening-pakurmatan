@@ -1,0 +1,274 @@
+# ODL
+Ya Allah Gusti, Ingkang Moho Agung.  
+Bade ngatur pamudyo, kawula tansah suwung.  
+Tan Keno Kinoyo Ngopo, sayekti Maha Agung  
+Mugi sedoyo jalmo, kagungan manah linuhung  
+Mugi gesang nirbaya, tebih saking rasa bingung.
+
+# NEW
+
+Gusti Allah ingkang / Maha Agung ing Dzat-ira,
+Murbeng sagung rat / panguwasa ing bawana,
+Tan ana kang madhani / ing sajroning alam raya,
+Maha Luhur ing Sipat / Gusti ingkang Maha Mulya.
+
+Ya Allah Gusti, / Maha Agung ing Dzat-Ira,
+Murbeng sagung rat, / ngayomi sagung titah-ira,
+Tan ana kang madhani, / ing sajroning alam raya,
+Atyasa ing prabawa, / tan kena tinakar ing rupa,
+Mula sagung kawula, / sujud mangastuti ing Kang Mulya.
+
+Ya Allah Gusti, / ingkang Maha Agung,
+Murbeng saindhenging rat, / panguwasa ingkang linuhung,
+Tan ana kang madhani, / ing sajroning alam gumulung,
+Atyasa ing prabawa, / tanpa wates tan kena kaétung,
+Mugi saliring kawula, / sujud mangastuti lan njungjung.
+
+## Ya Allah Gusti, Maha Agung ing Dzat-Ira
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira
+Murbeng sagunging jagad, panguwasa ing bawana
+Tan ana kang madhani, ing sajroning alam raya
+Maha Luhur ing Sipat, Gusti ingkang Maha Mulya
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira
+Murbeng saindhenging jagad, angayomi sagunging titah-Ira
+Tan ana kang madhani, ing sajroning alam raya
+Atyasa ing prabawa, nora kena tinakar ing rupa
+Mugi saliring kawula, sujud mangastuti mring Paduka
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira
+Murbeng saindhenging jagad, ...
+Tan ana kang madhani, ing sajroning alam raya
+Atyasa ing prabawa, ...
+Mugi saliring jiwa, mangastuti mring Paduka
+
+jagatpramāṇa : S. pengatur alam. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+paramārtha : S. hakekat yang tertinggi; kebenaran yang tertinggi; benar sekali; kaparamarthan perbuatan-perbuatan sosial; kebenaran yang tertinggi. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+niratiśaya : S. tertinggi. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+parama : S. utama; tertinggi; paling. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+uttama : S. tertinggi; terbaik; paling utama; inuttama paling utama; kottama (u) paling baik; paling utama. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging jagad, jagatpramana paramartha,
+Tan ana kang madhani, ing sajroning alam raya,
+Atyasa ing prabawa, agung parama niratisaya,
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+| Leksikon         | Makna sumber                                                   | Kecocokan Al-‘Aẓīm                               |
+| ---------------- | -------------------------------------------------------------- | ------------------------------------------------ |
+| **jagatpramāṇa** | pengatur alam                                                  | 🟢 sangat menarik untuk G2                       |
+| **paramārtha**   | hakikat/kebenaran tertinggi                                    | 🟡 bagus, tetapi mulai abstrak                   |
+| **niratiśaya**   | tertinggi                                                      | 🟢 sangat kuat                                   |
+| **parama**       | utama, tertinggi, paling                                       | 🟢 kuat                                          |
+| **uttama**       | tertinggi, terbaik, paling utama                               | 🟢 kuat                                          |
+| **ananta**       | tak berakhir                                                   | 🟢 sangat cocok                                  |
+| **aparimita**    | tak terhitung, banyak sekali, luar biasa                       | 🟢 sangat cocok                                  |
+| **anopama**      | tidak ada bandingnya                                           | 🟢 sangat cocok                                  |
+| **anopamya**     | tidak ada bandingnya                                           | 🟢 sangat cocok                                  |
+| **acintya**      | tak terbayangkan; luar biasa                                   | 🟢 cocok untuk transendensi                      |
+| **uttungga**     | tinggi, tertinggi, terbaik                                     | 🟢 cocok                                         |
+| **atyanta**      | sangat, luar biasa                                             | 🟢 cocok sebagai penguat                         |
+| **atyasa**       | luhur, kuasa, digdaya                                          | 🟢 sangat cocok                                  |
+| **prabawa**      | keluhuran, kesaktian; daya/kekuatan yang keluar dari keluhuran | 🟢 sangat cocok                                  |
+| **atiśūra**      | sangat perkasa                                                 | 🟡 terlalu mudah bergeser ke sifat kepahlawanan  |
+| **atiśakta**     | sangat kuasa                                                   | 🟡 dekat ke kekuasaan                            |
+| **atiśāra**      | amat kuat                                                      | 🟡 terlalu umum                                  |
+| **atiwiśāla**    | sangat lebar                                                   | 🟡 lebih cocok untuk keluasan daripada keagungan |
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging jagad, jagatpramana ingkang parama,
+Tan ana kang madhani, ing sajroning alam raya,
+Atyasa ing prabawa, acintya niratisaya,
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, / Maha Agung ing Dzat-Ira,
+Murbeng saindhenging jagad, / jagatpramāṇa ingkang parama,
+Tan ana kang madhani, / ing sajroning alam raya,
+Atyasa ing prabawa, / acintya aparimita,
+Mugi saliring jiwa, / mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging bhuwana, jagatpramana ingkang parama,
+Tan ana kang madhani, ing sajroning alam raya,
+Atyasa ing prabawa, acintya atyanta,
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging bhuwana, jagatpramana ingkang parama,
+Anupama anaupamya , ing sajroning alam raya,
+Atyasa ing prabawa, acintya atyanta,
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+apaḍa : unmatched, unequalled. Sumber: Kawi Lexicon, Wojowasito, 1980, #575.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging bhuwana, jagatpramana ingkang parama,
+Anupama anaupamya, ing alam raya sayekti apaḍa,
+Atyasa ing prabawa, acintya atyanta,
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging bhuwana, jagatpramana ingkang parama,
+Anupama anaupamya , Atyasa ing prabawa
+Acintya atyanta, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Murbeng saindhenging bhuwana, atyasa ing prabawa
+Anupama anaupamya, ing sajroning alam raya
+Atyanta acintya, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Gumilang wonten bhuwana, atyasa ing prabawa
+Anupama anaupamya, ing sajroning alam raya
+Atyanta acintya, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Atyasa ing prabawa, abyuran ing bhuwana
+Anupama anaupamya, ing sajroning alam raya
+Atyanta acintya, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+## Ya Allah Gusti, ingkang Maha Agung,
+Ya Allah Gusti, Ingkang Maha Agung,
+Murbeng saindhenging jagad, panguwasa ingkang linuhung,
+Tan ana kang madhani, ing sajroning alam gumulung,
+Atyasa ing prabawa, tanpa wates tan kena kaétung,
+Mugi saliring jiwa, sujud mangastuti lan njungjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Murbeng saindhenging jagad, panguwasa ingkang linuhung,
+Tan ana kang madhani, ing sajroning alam gumulung,
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njungjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Murbeng saindhenging jagad, nyakrawati ingkang linuhung,
+Tan ana kang madhani, ing sajroning alam gumulung,
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Gumelar ing saindhenging jagad, kamulyan ingkang linuhung,
+Tan ana kang madhani, ing sajroning alam gumulung,
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, / Ingkang Maha Agung,
+Gumelar ing jagad raya, / prabawa ingkang linuhung,
+Tan ana kang madhani, / ing sajroning alam gumulung,
+Atyasa ing prabawa, / tanpa wates nora kaétung,
+Mugi saliring jiwa, / mangastuti makadi njungjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Gumelar ing saindhenging jagad, ....
+Tan ana kang madhani, ....
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Gumelar ing saindhenging jagad, saestu linuhung
+Tan ana kang madhani, sayekti Maha Agung
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, / Ingkang Maha Agung,
+Kamulyan-Ira gumelar, / sagung dumadi tumelung,
+Tan ana kang madhani, / ing sajroning alam gumulung,
+Atyasa ing prabawa, / tanpa wates nora kaétung,
+Mugi saliring jiwa, / mangastuti makadi njunjung.
+
+liwung (liwUG) : kw. 1 mumbul têrus; 2 ngamuk punggung. Sumber: Bausastra Jawa, Poerwadarminta, 1939, #75.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Kamulyan-Ira gumelar, sagung dumadi tumelung,
+Tan ana kang madhani, Paduka sayekti adiluhung,
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, Ingkang Maha Agung
+Bade matur pamudya, kawula tansah suwung
+Tan ana kang madhani, Paduka yekti Maha Agung
+Atyasa ing prabawa
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Kamulyan-Ira gumelar, sagung dumadi suwung,
+Tan ana kang madhani, alam raya tansah tumelung
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Kamulyan-Ira gumelar, dumadi mlumah suwung,
+Tan ana kang madhani, alam raya tansah tumelung
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+Ya Allah Gusti, Ingkang Maha Agung,
+Kamulyan-Ira gumelar, sagung dumadi suwung,
+Tan ana kang madhani, jagad raya tansah tumelung
+Atyasa ing prabawa, satuhu tansah linuhung
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+# FInal
+
+## Kanonik | Monorima -UNG
+Ya Allah Gusti, Ingkang Maha Agung,
+Kamulyan-Ira gumelar, sagung dumadi suwung,
+Tan ana kang madhani, jagad raya tumelung
+Atyasa ing prabawa, tanpa wates nora kaétung,
+Mugi saliring jiwa, mangastuti makadi njunjung.
+
+### Alternative Variant | Monorima -A (semantik)
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Atyasa ing prabawa, gumelar ing bhuwana
+Anupama anaupamya, ing sajroning jagad raya
+Atyanta acintya, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+#### Alternative Variant Monorima A Rhythm (rima/word order)
+Ya Allah Gusti, Maha Agung ing Dzat-Ira,
+Atyasa ing prabawa, gumelar ing bhuwana
+Anupama anaupamya, ing sajroning jagad raya
+Acintya atyanta, ananta aparimita
+Mugi saliring jiwa, mangastuti mring Paduka.
+
+##### Catatan Perbandingan Varian
+
+Jika Alternative Variant | Monorima A Rhythm unggul dalam bidang estetika bunyi (rima/purwakanthi), maka Alternative Variant | Monorima -A lebih unggul dalam bidang bobot makna (semantik). Susunan "Atyanta acintya" menegaskan secara mutlak bahwa keagungan Dzat Allah (Al-‘Aẓīm) bersifat tak terbayangkan dan melampaui batas nalar manusia.
+
+
+# Lirik
+Ya Allah Gusti
+Ya Allah (Ya) Tuhan
+
+Ingkang Maha Agung
+Yang Maha Agung
+
+Kamulyan-Ira gumelar
+Kemuliaan-Mu terhampar
+
+Sagung dumadi suwung
+Segala ciptaan menjadi tak berarti
+(seluruh makhluk tak berdaya di hadapan-Mu)
+
+Tan ana kang madhani
+Tiada yang menyamai
+
+Jagad raya tumelung
+Semesta raya tunduk
+
+Atyasa ing prabawa
+Maha Agung dalam kewibawaan
+
+Tanpa wates nora kaetung
+Tanpa batas, tidak terhitung
+
+Mugi saliring jiwa
+Semoga seluruh jiwa
+
+Mangastuti makadi njunjung
+Menyembah serta menjunjung
+(senantiasa menyembah dan mengagungkan-Mu)
